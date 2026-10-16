@@ -28,7 +28,7 @@ Seeking opportunities in L1 Service Desk, IT Technical Support, and IT Support E
 ## 🌐 Connect With Me
 
 - **GitHub:** https://github.com/amarnath008
-- **LinkedIn:** Add your LinkedIn profile URL here.
+- **LinkedIn:** https://www.linkedin.com/in/amarnath0921 
 
 ---
 
